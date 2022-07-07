@@ -1,4 +1,4 @@
 
  ## Hack Github Commit 
  ### Watch video <a href="https://www.youtube.com/channel/UCelbvkWLSOj8eQjDd79ZN9g">here</a> 
- Fri 06 Jul 2018 
+ Sat 07 Jul 2018 
